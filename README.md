@@ -1,0 +1,1 @@
+# adatb_feladatok_2022_11
